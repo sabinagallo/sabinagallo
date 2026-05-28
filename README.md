@@ -37,5 +37,5 @@ I am currently strengthening my skills through coursework and hands-on projects 
 
 ## Contact
 
-- [LinkedIn](https://linkedin.com/in/sabinagallo)
+- [LinkedIn](https://linkedin.com/in/sabina-gallo)
 - [Email](mailto:sabinagallo04@gmail.com)
